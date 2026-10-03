@@ -1,1 +1,1 @@
-# Electro Store APK
+# Electric Store APK
